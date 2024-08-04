@@ -13,9 +13,9 @@ Como Data Analyst do FP&A da Quero, fui responsável por analisar e interpretar 
 
 ## Formação Acadêmica ##
 
-Australian Pacific CollegeAustralian Pacific College
-Diploma of Project Management, Project ManagementDiploma of Project Management, Project Management
-2016 - 20172016 - 2017
+Australian Pacific College
+Project Management (Diploma)
+2016 - 2017
 
 Faculdade PitagorasFaculdade Pitagoras
 MBA, Gestão de Sistemas Integrados (Qualidade, Meio Ambiente, Saúde, Segurança e Responsabilidade Social)MBA, Gestão de Sistemas Integrados (Qualidade, Meio Ambiente, Saúde, Segurança e Responsabilidade Social)
